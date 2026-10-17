@@ -5,19 +5,6 @@
 
 📍 Alexandria, Egypt
 
-📧 Email: its.saramahmoud@gmail.com
-
-📱 Phone: +20 110 187 4480
-
-💼 LinkedIn: https://linkedin.com/in/sarah-mahmoud-885255374
-
-🌐 Portfolio: https://sarahmahmoudabdullah.github.io/
-
-💻 GitHub: https://github.com/sarahmahmoudabdullah
-
-
----
-
 ## About Me
 
 I am a fourth-year Pharmaceutical Production Technology student at
